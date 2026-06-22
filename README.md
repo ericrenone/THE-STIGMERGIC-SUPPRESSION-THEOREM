@@ -3,6 +3,11 @@
 
 **ERI Labs | Eric Ren | Jersey City, New Jersey | June 22, 2026**
 
+**https://github.com/ericrenone/The-Informational-Dual-of-Stigmergic-Transport**
+
+**https://github.com/ericrenone/CONCERT-Collective-Optimization-through-Nondependent-Coordination-Evidence**
+
+
 ---
 
 ## THE CENTRAL DISCOVERY: ISOMORPHISM AT EVERY SCALE
